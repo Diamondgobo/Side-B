@@ -10,6 +10,7 @@ The room was rendered in Fusion, and other models were found online.
 
 Snippets of the Game:
 
+<img width="1280" height="660" alt="WhatsApp Image 2026-11-14 at 17 58 00" src="https://github.com/user-attachments/assets/5d96bb1c-d358-4148-b0b9-66486080cf60" />
 
 
 
